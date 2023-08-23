@@ -1,0 +1,2 @@
+# nanagemok
+Nana memamng gemokk
